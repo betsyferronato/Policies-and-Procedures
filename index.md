@@ -224,7 +224,7 @@ The course of action to take in the event of an emergency will vary depending on
 1. Make a report of the details of the incident for the COS’s records
 
 ##Fire Emergency Exit and Procedure
-The COS designated meeting area in such circumstances is outside in the guest parking spots. In the event of a fire, everyone is to exit the office using the front doors, walk down the hallway, and turn right to exit through the glass double doors for the Downtown Business Center. If this exit is blocked, exit through the Omni hotel. In this scenario, turn left after the hallway, walk through 2 double doors and exit the building using the nearest doors in the Omni hotel, then walk to meet your team at the guest parking spots. 
+The COS designated meeting area in such circumstances is the lower corner of the Omni parking lot along Ridge McIntire Road. In the event of a fire, everyone is to exit the office using the front doors, walk down the hallway, and turn right to exit through the glass double doors for the Downtown Business Center. If this exit is blocked, exit through the Omni hotel. Please find the nearest exit and make your way to the rally point.  The operations team will do a final sweep of the office to ensure everyone is out. 
 
 ##Grievances
 
